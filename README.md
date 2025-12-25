@@ -10,7 +10,7 @@ Days have turned into months, yet my sanity can be destroyed by a single memory.
 ---
 
 *2025-03-21* \
-I did what had to be done. I could have lied - my princples protected me. The ball has started to roll. Now we hope for a better tomorrow or atleast, the courage to face it.
+I did what had to be done. I could have lied - my principles protected me. The ball has started to roll. Now we hope for a better tomorrow or atleast, the courage to face it.
 
 ---
 
